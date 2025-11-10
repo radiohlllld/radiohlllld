@@ -3,7 +3,7 @@
 </div>
 
 <div align="center">
-  ﾠ—　 ﹕ `` **get a load of this monster. he doesn't know how to communicate** ` ◞ '
+  ﾠ—　 ﹕ `` _get a load of this monster. he doesn't know how to communicate_ ` ◞ '
 </div>
 
 <div align="center">
