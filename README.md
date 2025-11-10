@@ -1,8 +1,10 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ                ㅤㅤ   ㅤㅤㅤ <img src="https://github.com/user-attachments/assets/ea604d1a-3cbb-43ab-b906-5efdb3218f31"  width="90" height="82" center>
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/ea604d1a-3cbb-43ab-b906-5efdb3218f31"  width="90" height="82" />
+</div>
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤ       ㅤﾠ—　 ﹕ `` 𝘩𝘪𝘴 𝘩𝘢𝘪𝘳'𝘴 𝘢 𝘮𝘦𝘴𝘴 𝘢𝘯𝘥 𝘩𝘦 𝘥𝘰𝘦𝘴𝘯'𝘵 𝘬𝘯𝘰𝘸 𝘸𝘩𝘰 𝘩𝘦 𝘪𝘴 𝘺𝘦𝘵. ◞ '
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤ       ㅤﾠ—　 ﹕ `` *get a load of this monster.* ◞ '
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/6e0c9e48-89a5-479b-88fd-d1d2f3dfe7fb" height=500 />
