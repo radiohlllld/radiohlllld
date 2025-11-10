@@ -4,7 +4,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤ                 ㅤﾠ—　 ﹕ `` *get a load of this monster. he doesn't know how to communicate* `` ◞ '
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ      ㅤㅤㅤ                 ㅤﾠ—　 ﹕ `` *get a load of this monster. he doesn't know how to communicate* ` ◞ '
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/6e0c9e48-89a5-479b-88fd-d1d2f3dfe7fb" height=500 />
