@@ -16,4 +16,7 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ╰┈ ⋆｡˚ ❀ *·  ࿐ ࿔ ˚:⋆ ✧･ﾟ   ⊹ ˖
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ <img src="https://github.com/user-attachments/assets/435fbfde-2f0c-4bc9-a973-1f40d3e0d84c" height="100">
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/435fbfde-2f0c-4bc9-a973-1f40d3e0d84c" height="100">
+</div>
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
