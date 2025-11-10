@@ -14,7 +14,7 @@
   <img src="https://github.com/user-attachments/assets/6e0c9e48-89a5-479b-88fd-d1d2f3dfe7fb" height=500 />
 </div>
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ╰┈ ⋆｡˚ ❀ *·  ࿐ ࿔ ˚:⋆ ✧･ﾟ   ⊹ ˖
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ╰┈ ⋆｡˚ ❀ *·  ࿐ ࿔ ˚:⋆ ✧･ﾟ   ⊹ ˖゛ ˎˊ
 
 <div align="center">
   <img src="https://github.com/user-attachments/assets/435fbfde-2f0c-4bc9-a973-1f40d3e0d84c" height="100">
