@@ -1,22 +1,28 @@
-<div align="center">
-  ✃𓄧꒷꒦𝒽(..◜ᴗ◝..)°❀.ೃ࿔*⋆.ೃ࿔*:･⸝⸝₍^. .^₎⟆𓇼 ⋆.˚ 𓆉 𓆝 𓆡⋆.˚ 𓇼.ᐟ ۶ৎ ── ☾⭒.˚𝟏₊˚ ┊ྀི☾´ྀི ﹌﹌ ა _ ᝰ.ᐟ 𖹭 . ⋮ ⌗ ┆ ⋆˚࿔ 𖦹
-</div>
+<img width="2048" height="217" alt="image" src="https://github.com/user-attachments/assets/221e8cf6-3537-421d-a877-9e58ca772f5d" />
+ㅤㅤㅤ<div align="center"> ㅤㅤㅤ˖ㅤ────୨ৎ────ㅤㅤㅤ˖ㅤㅤㅤㅤ
+<br/>
+<br/>
 
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/ea604d1a-3cbb-43ab-b906-5efdb3218f31"  width="90" height="82" />
-</div>
+<div align="center"> 
+ 
+  ˖　⠀˙  𝜗୧⠀⠀⠀𓈒⠀⠀  ⊹    ·    ⊹  　 　 ⠀***ℬ𝓁𝑜𝑜𝒹𝓎 𝒶𝓃𝒹 ℬ𝓇𝓊𝒾𝓈𝑒𝒹. ℬ𝓇𝑜𝓊𝑔𝒽𝓉, 𝓉𝑜 𝓂𝓎 𝓀𝓃𝑒𝑒s.*** 　　 　 　 ⠀˖　⠀˙⠀　｡　⠀<br/>
+  <br/>
+  
 
-<div align="center">
-  ﾠ—　 ﹕ `` get a load of this monster. he doesn't know how to communicate ` ◞ '
-</div>
+  
+<img width="2048" height="2048" alt="Без названия50_20260318105232" src="https://github.com/user-attachments/assets/3c38ffa9-1a23-4ca8-8c74-25f568a58d10" />
+ㅤㅤ<div align="center"> ㅤㅤㅤ˖ㅤ────୨ৎ────ㅤㅤㅤ˖ㅤㅤㅤㅤ
+<br/>
+<br/>
+<br/>
+<br/>
 
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/6e0c9e48-89a5-479b-88fd-d1d2f3dfe7fb" height=500 />
-</div>
+ <div align="center"> 
+   
+   [*strawpage*](https://uwunnss.straw.page/) *(eng)* 　　 ִ۶۟ৎ　 　 [*atabook*](/https://radiohlllld.atabook.org/) 　　 ִ۶۟ৎ　 　 [*сarrd*](https://uwunnss.carrd.co/) *(rus)*
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ╰┈ ⋆｡˚ ❀ *·  ࿐ ࿔ ˚:⋆ ✧･ﾟ   ⊹ ˖゛ ˎˊ
 
-<div align="center">
-  <img src="https://github.com/user-attachments/assets/435fbfde-2f0c-4bc9-a973-1f40d3e0d84c" height="100">
-</div>
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 
+<img width="2048" height="217" alt="image" src="https://github.com/user-attachments/assets/9370b6a1-4df8-4b67-985c-7114f4fbf4d7" />
+
+![ezgif com-crop](https://github.com/user-attachments/assets/2db7342f-1c4c-41c3-a4c3-849081c3c92c) ![tumblr_e671d51ec0316ca5ccdd5eb33f43ac69_3b5a3084_100](https://github.com/user-attachments/assets/0ad8b70a-3e70-40f6-b37f-4f75bdab4de7) ![ezgif com-crop (1)](https://github.com/user-attachments/assets/7450bea7-6e4c-45af-b780-af6b6f1893e3)
+
