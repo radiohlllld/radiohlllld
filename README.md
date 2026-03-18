@@ -19,7 +19,7 @@
 
  <div align="center"> 
    
-   [*strawpage*](https://uwunnss.straw.page/) *(eng)* 　　 ִ۶۟ৎ　 　 [*atabook*](/https://radiohlllld.atabook.org/) 　　 ִ۶۟ৎ　 　 [*сarrd*](https://uwunnss.carrd.co/) *(rus)*
+   [*strawpage*](https://uwunnss.straw.page/) *(eng)* 　　 ִ۶۟ৎ　 　 [*atabook*](https://radiohlllld.atabook.org/) 　　 ִ۶۟ৎ　 　 [*сarrd*](https://uwunnss.carrd.co/) *(rus)*
 
 
 <img width="2048" height="217" alt="image" src="https://github.com/user-attachments/assets/9370b6a1-4df8-4b67-985c-7114f4fbf4d7" />
